@@ -1,2 +1,2 @@
-# poems
-Poetry and quotesa
+Sometimes life has a cruel sense of humor,
+giving u the thing u always wanted at then worst possible time...
